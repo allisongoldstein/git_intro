@@ -1,1 +1,2 @@
 Allison Goldstein
+goldsall@oregonstate.edu
